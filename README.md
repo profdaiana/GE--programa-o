@@ -1,1 +1,0 @@
-# GE--programa-o
